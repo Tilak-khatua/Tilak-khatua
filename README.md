@@ -1,4 +1,4 @@
-# Hi there, Tilak tjis side! 👋
+# Hi there, Tilak this side! 👋
 
 ## About Me
 
